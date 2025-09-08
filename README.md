@@ -1,2 +1,0 @@
-# TeamU--Hemsidan
-TeamUÅ-Hemsidan
